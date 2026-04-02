@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **sachinkbse789@gmail.com**
 
-- 📫 How to reach me **https://linktr.ee/sachin_bhawala**
+- 📫 Get all my connections links at: **https://linktr.ee/sachin_bhawala**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
